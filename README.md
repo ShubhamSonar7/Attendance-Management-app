@@ -15,3 +15,9 @@
 
 ![Screenshot 2025-01-01 220333](https://github.com/user-attachments/assets/dc1e27d6-3970-4fa2-82e1-d4c7f66aeac9)
 
+
+**Options for Attendance**
+
+
+![Screenshot 2025-01-02 004254](https://github.com/user-attachments/assets/f14d7db6-9e50-47d7-8a6c-9d5952946989)
+
