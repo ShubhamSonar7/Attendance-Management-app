@@ -21,3 +21,9 @@
 
 ![Screenshot 2025-01-02 004254](https://github.com/user-attachments/assets/f14d7db6-9e50-47d7-8a6c-9d5952946989)
 
+
+
+**Teacher information who are take Attendance**
+
+
+![Screenshot 2025-01-02 004829](https://github.com/user-attachments/assets/b64d7fb7-3559-47fc-ba13-01e83686a216)
